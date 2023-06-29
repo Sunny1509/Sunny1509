@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sunny.hirani31@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
